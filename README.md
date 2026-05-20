@@ -1,6 +1,4 @@
-➤ She/her and/or They/Them... Ehehe.. 
-
-➤ Minor so EXUSEEEE YOU >:CCC
+➤ She/her and/or They/Them... Ehehe.
 
 --
 ## BI0!!
