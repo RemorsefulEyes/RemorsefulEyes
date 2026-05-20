@@ -18,7 +18,8 @@
 
 
 ➣ Chicken ofc, Drawing, bread, LTM (listening to music), etc. etc.. hehe :'3
-➤ Mainly listens to: Danganronpa songs / Forsaken LMS' etc bc ic 🤩
+
+➤ Mainly listens to: Danganronpa fan songs and Forsaken LMS' and much more !
 
 
 --
@@ -41,3 +42,5 @@
 Idk... THIS IS STILL A WIP SO LEAVE ME ALONE!!! Butttttt there's 2 many changes so.. umwbmhjnbgrzmmafbczlcmnkvn
 
 ➤ Regularly plays / joins : PonyTown - Social MMORPG, Roblox & a chatting ap... hehehe... [ NOT C. AI, CHAI, OR ANYTHING LIKE THAT!! I'M NOT DIRTY-MINDED! >:CCC ]
+
+➤ Yes I'm unemployed
