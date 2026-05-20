@@ -1,3 +1,7 @@
+➤ She/her and/or They/Them... Ehehe.. 
+
+➤ Minor so EXUSEEEE YOU >:CCC
+
 --
 ## BI0!!
 
@@ -33,4 +37,6 @@
 ## MORE!
 
 
-Idk... THIS IS STILL A WIP SO LEAVE ME ALONE!!! :'CCC
+Idk... THIS IS STILL A WIP SO LEAVE ME ALONE!!! Butttttt there's 2 many changes so.. umwbmhjnbgrzmmafbczlcmnkvn
+
+➤ Regularly plays / joins : PonyTown - Social MMORPG, Roblox & a chatting ap... hehehe... [ NOT C. AI, CHAI, DIRTY TALK, OR ANYTHING LIKE THAT!! I'M NOT DIRTY-MINDED! >:CCC ]
