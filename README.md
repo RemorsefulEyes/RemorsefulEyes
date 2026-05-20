@@ -17,14 +17,15 @@
 ## LIK3S!!
 
 
-➣ Chicken ofc, Drawing, bread, LTM, etc. etc.. hehe :'3
+➣ Chicken ofc, Drawing, bread, LTM (listening to music), etc. etc.. hehe :'3
+➤ Mainly listens to: Danganronpa songs / Forsaken LMS' etc bc ic 🤩
 
 
 --
 ## DISLIK3S
 
 
-➣ Ena, yucky job!! >:ccc
+➣ ENA, she hass a yucky yucky jobbb!! >:ccc
 
 
 --
@@ -39,4 +40,4 @@
 
 Idk... THIS IS STILL A WIP SO LEAVE ME ALONE!!! Butttttt there's 2 many changes so.. umwbmhjnbgrzmmafbczlcmnkvn
 
-➤ Regularly plays / joins : PonyTown - Social MMORPG, Roblox & a chatting ap... hehehe... [ NOT C. AI, CHAI, DIRTY TALK, OR ANYTHING LIKE THAT!! I'M NOT DIRTY-MINDED! >:CCC ]
+➤ Regularly plays / joins : PonyTown - Social MMORPG, Roblox & a chatting ap... hehehe... [ NOT C. AI, CHAI, OR ANYTHING LIKE THAT!! I'M NOT DIRTY-MINDED! >:CCC ]
