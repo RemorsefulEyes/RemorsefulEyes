@@ -66,6 +66,6 @@ Idk... THIS IS STILL A WIP SO LEAVE ME ALONE!!! Butttttt there's 2 many changes 
 
 → POO!!! >:( I am nice to you and this is the thankz i get?! umwbmhjnbgrzmmafbczlcmnkvn
 
-⇨ ** Rude entities like you get punished for the sins of others.
+⇨ **Rude entities like you get punished for the sins of others.
 
 → MWAHAHA!!! DUMMY, im joking!!! MWAA-HA!!!, fell for it, didntchuU?! ^-^
