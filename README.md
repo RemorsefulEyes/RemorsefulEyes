@@ -30,7 +30,7 @@
 ## DN1!!
 
 
-➣ Tr*mp supporters, Ena, sexual topics/stuff, stuff i should NOT be hearing, lowky Dratula, etcetera. >:(((
+➣ Tr*mp supporters, Ena, sexual topics/stuff, stuff i should NOT be hearing, lowky Dratula, etc. >:((
 
 --
 ## FAND0MS
@@ -47,3 +47,5 @@ Idk... THIS IS STILL A WIP SO LEAVE ME ALONE!!! Butttttt there's 2 many changes 
 ➤ Regularly plays / joins : PonyTown - Social MMORPG, Roblox & a chatting ap... hehehe... [ NOT C. AI, CHAI, OR ANYTHING LIKE THAT!! I'M NOT DIRTY-MINDED! >:CCC ]
 
 ➤ Yes I'm unemployed, i doomscroll sometimes.
+
+##
