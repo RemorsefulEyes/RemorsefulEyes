@@ -49,3 +49,23 @@ Idk... THIS IS STILL A WIP SO LEAVE ME ALONE!!! Butttttt there's 2 many changes 
 ➤ Yes I'm unemployed, i doomscroll sometimes.
 
 ##
+
+➣ ᴍᴀʏ ɪ ᴏғғᴇʀ ʏᴏᴜ ᴀ ᴅɪᴠᴇsᴛᴍᴇɴᴛ ᴏᴘᴘᴏʀᴛᴜɴɪᴛʏ?
+
+→ …Divestment?........ (gasp)
+
+→ Are you making fun of my unemployment lifes!!!!?
+
+→ I don care! I DON CARE!!! >:OO GO AWAY!!!
+
+→ WHAT!! YOU ARE ENA?!! YOU HAVE A JOB?!
+
+➣ ɪᴛ's ᴍᴏʀᴇ ᴏғ ᴀ ʟɪғᴇsᴛʏʟᴇ. ᴛʜᴀᴛ's ᴍʏ ᴅᴇsᴛɪɴʏ! ᴡʜᴀᴛ ᴍᴏʀᴇ ᴄᴏᴜʟᴅ ɪ ᴅᴏ? 
+
+➣ ɢᴏᴅ ᴋɴᴏᴡs ᴛʜᴇ ʀᴇsᴛ. (wink)
+
+→ POO!!! >:( I am nice to you and this is the thankz i get?! umwbmhjnbgrzmmafbczlcmnkvn
+
+⇨ ** Rude entities like you get punished for the sins of others.
+
+→ MWAHAHA!!! DUMMY, im joking!!! MWAA-HA!!!, fell for it, didntchuU?! ^-^
