@@ -48,6 +48,8 @@ Idk... THIS IS STILL A WIP SO LEAVE ME ALONE!!! Butttttt there's 2 many changes 
 
 ➤ Yes I'm unemployed, i doomscroll sometimes.
 
+➤ I am mostly Taski Maiden, Coral Glasses, or maybe anything that isn't related toEENA : DREAM BBQ.
+
 ##
 
 ➣ ᴍᴀʏ ɪ ᴏғғᴇʀ ʏᴏᴜ ᴀ ᴅɪᴠᴇsᴛᴍᴇɴᴛ ᴏᴘᴘᴏʀᴛᴜɴɪᴛʏ?
@@ -69,3 +71,5 @@ Idk... THIS IS STILL A WIP SO LEAVE ME ALONE!!! Butttttt there's 2 many changes 
 ⇨ ᖇᑌᗪᗴ ᗴᑎTITIᗴՏ ᒪIKᗴ YOᑌ ᘜᗴT ᑭᑌᑎIՏᕼᗴᗪ ᖴOᖇ Tᕼᗴ ՏIᑎՏ Oᖴ OTᕼᗴᖇՏ.
 
 → MWAHAHA!!! DUMMY, im joking!!! MWAA-HA!!!, fell for it, didntchuU?! ^-^
+
+➣ ᴍɪss, ᴄᴏᴜʟᴅ ʏᴏᴜ ᴋᴇᴇᴘ ɪᴛ ᴅᴏᴡɴ ᴘʟᴇᴀsᴇ? ᴛʜᴇ ᴘɪᴢᴢᴀ ɢᴜʏ ɪs ʀɪɢʜᴛ ʜᴇʀᴇ.
