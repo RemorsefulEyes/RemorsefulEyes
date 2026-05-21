@@ -15,7 +15,7 @@
 ## LIK3S!!
 
 
-➣ Chicken ofc, Drawing, bread, LTM (listening to music), etc. etc.. hehe :'3
+➣ Chicken ofc, Drawing, bread, LTM (listening to music),Turrons, etc. etc.. hehe :'3
 
 ➤ Mainly listens to: Danganronpa fan songs and Forsaken LMS' and much more !
 
@@ -26,6 +26,11 @@
 
 ➣ ENA, she hass a yucky yucky jobbb!! >:ccc
 
+--
+## DN1!!
+
+
+➣ Tr*mp supporters, Ena, sexual topics/stuff, stuff i should NOT be hearing, lowky Dratula, etcetera. >:(((
 
 --
 ## FAND0MS
