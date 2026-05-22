@@ -48,7 +48,9 @@ Idk... THIS IS STILL A WIP SO LEAVE ME ALONE!!! Butttttt there's 2 many changes 
 
 ➤ Yes I'm unemployed, i doomscroll sometimes.
 
-➤ I am mostly Taski Maiden, Coral Glasses, or maybe anything that isn't related toEENA : DREAM BBQ.
+➤ I am mostly Taski Maiden, Coral Glasses, or maybe anything that isn't related to ENA : DREAM BBQ.
+
+➤ Lives with a cousin that thinks they're the owner of everything.
 
 ##
 
