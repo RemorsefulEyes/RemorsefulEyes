@@ -1,5 +1,7 @@
 ➤ She/her and They/Them... Ehehe.
 
+➤ YOU HAVE TO READ ALAT!!
+
 --
 ## BI0!!
 
@@ -49,6 +51,8 @@ Idk... THIS IS STILL A WIP SO LEAVE ME ALONE!!! Butttttt there's 2 many changes 
 ➤ Yes I'm unemployed, i doomscroll sometimes. >:33
 
 ➤ I am mostly Taski Maiden, Coral Glasses, or maybe anything that isn't related to ENA : DREAM BBQ. 0_o
+
+➤ and NO, i am not associated with that cursed, ugly, p*do-filled fandom [ forsaken ]. If you see ME cosplaying as any "forsaken" characters they're from different fandoms silly!! >:^^
 
 ##
 
