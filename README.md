@@ -43,7 +43,7 @@
 - MARBL.E.
 - Shaniel
 - Dysk
-- (some random DoD enthusiast that shan knows)
+- (Random DoD enthusiast Shan knows)
 - きら 
 
 And many more, i only allow people i know & friends to INT with me freely.
@@ -59,3 +59,10 @@ And many more, i only allow people i know & friends to INT with me freely.
 # EVERYTHING
 
 that's all, this page may be updated later. But i cannot reveal much up ahead this road of glory.
+
+— NOTE:
+
+M.A.P.L.E.T.R.33 has Pintrest covered.
+SOL has Roblox covered.
+Jachinthe/JAN has Patreon covered. (i don't know what her account is yet)
+and Dysk has Discord covered. (I don't know their account either)
