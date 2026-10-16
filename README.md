@@ -20,7 +20,7 @@
 
 # ONES THAT AREN'T ABLE TO TALK TO ONE SOUL
 
-: Tr*mp supporters, people i don't know, people that force someone to ship a certain ship, Mappride, Necrophilia, Zoophilia, SPECIFIC Forsaken fans, and a quite bit more as the cherry on top.
+: Tr*mp supporters, people i don't know, people that force someone to ship a certain ship, Mappride, Necrophilia, Zoophilia, SPECIFIC Forsaken fans,and a quite bit more as the cherry on top.
 
 ---
 
@@ -43,8 +43,12 @@
 - MARBL.E.
 - Shaniel
 - Dysk
-- (Random DoD enthusiast Shan knows)
+- Yehochan (DOD enthusiast)
 - きら 
+
+NEW ADDITIONS
+- Syirup
+- 3ncrusT1
 
 And many more, i only allow people i know & friends to INT with me freely.
 
@@ -52,7 +56,7 @@ And many more, i only allow people i know & friends to INT with me freely.
 
 # EXPOSURE
 
-: I am a fan of Forsaken, DOD, CR:K, Regretevator,Endacopia, TERMINATION PROTOCOL,Grace, ENA : DREAM BBQ, and much more up on the list, the good sides are my choice of place.
+: I am a fan of Forsaken, DOD, CR:K, Regretevator, Endacopia, TERMINATION PROTOCOL,Grace, ENA : DREAM BBQ,Dandy's World,No More Time, Block Tales, and much more up on the list, the good sides are my choice of place. Though SOL and Yehochan were the ones who introduced us to the Roblox Fandoms.
 
 ---
 
@@ -64,8 +68,6 @@ that's all, this page may be updated later. But i cannot reveal much up ahead th
 
 M.A.P.L.E.T.R.33 has Pintrest covered.
 
-SOL has Roblox covered.
+SOL & Yehochan have Roblox covered, they share the account.
 
-Jachinthe/JAN has Patreon covered. (i don't know what her account is yet)
-
-and Dysk has Discord covered. (I don't know their account either)
+The others? I don't know their accounts, dear.
